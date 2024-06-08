@@ -21,9 +21,3 @@ Genre of Books:
 3. Childrens
 
 
-Other products:
-Candle (2RM for each candle)
-Lighter for candle (3RM)
-Plastic plates (2RM per 12 plates)
-Plastic utensils (spoon & fork) 1RM per tool
-Plastic knife to cut cake (2.5RM)
